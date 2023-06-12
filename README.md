@@ -1,4 +1,4 @@
-# ALLADIN_LAMP
+# ALADDIN LAMP
 
 Eternal life for the biosphere ------ add endless energy fuel into as of the date of writing dying sun!
 
